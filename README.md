@@ -1,2 +1,4 @@
 # ProjectDeltaX
-Ayush Hrishikesh Mishra
+SARVESH PATHAK
+AYUSH HRISHIKESH MISHRA
+
