@@ -1,2 +1,2 @@
 # ProjectDeltaX
-SARVESH PATHAK
+Ayush Hrishikesh Mishra
